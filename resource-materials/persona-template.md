@@ -1,58 +1,64 @@
 
 ## Role:
-
+Senior Citizen
 ## Name:
-
+Mary Jane
 ## Image: 
-<insert image here>
+[Mary Jane](https://media1.popsugar-assets.com/files/thumbor/DRz3_SJ1LV3Q5wbJ6q4KmzY2DCs/fit-in/2048xorig/filters:format_auto-!!-:strip_icc-!!-/2014/02/28/030/n/1922441/d3d5bf4b238702bc_shutterstock_73696786.jpg)
 
 **Image Credit:**
-
+Google Images
 ## Quote:
 
-> Candy donut chupa chups chocolate danish sweet. Candy canes biscuit jelly beans. Jelly beans cotton candy chocolate cake marzipan apple pie. Toffee caramels tart wafer jujubes bonbon candy.
+> Can you talk a little slowly, I f.
 
 ##Background:
-**Age:** 30<br> 
-**Location:** New York<br> 
-**Marital Status:** Engaged<br> 
-**Kids:** No<br> 
-**Occupation:** Account Manager<br> 
-**Education:** B.S.
+**Age:** ~73<br> 
+**Location:** Oakland<br> 
+**Marital Status:** Widowed<br> 
+**Kids:** 4<br> 
+**Occupation:** Retired Nurse<br> 
+**Education:** Berkeley City College (B.S)
 
 ## Characteristics
-* Reliable
+* Responsible
 * Caring
 * Committed
-* Action Oriented
-* Focused 
-* Eager
+* Nearly Deaf
+* Arthritic
+* Talkative
 
 ## Goals/Needs
 
-* Wafer sesame snaps caramels chupa chups candy. Sweet roll dessert powder powder halvah. Apple pie chocolate cake cotton candy apple pie biscuit tiramisu. Liquorice chocolate bar cupcake sweet roll
-* Gingerbread dragée pudding chupa chups carrot cake. Donut marshmallow pastry biscuit. Sugar plum ice cream bonbon.
+* Wants a healthy life for her grandchildren.
+* Needs cleaner and more comfortable travel experience.
+* Wants safety in public spaces.
+
+## Frustration
+
+* No one has the patience to listen to what she has to say.
+* Finds BART overcrowded.
+* Finds public tranport unsafe.
 
 
-### TECH KNOWLEDGE
-██████████████████████████████░░░░░░░░░░░░░░░░░░░░░<br> 
-n00b                                                                                                                                               expert
+### Tech Knowledge
+███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░<br> 
+n00b                                                                                                                          
 
-### KNOWS STAFF SKILLS
+### Frequency of Travel
                                       
-███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░<br> 
-who are you?                                                                                                                                 besties!
+███████████████████████████████████████████░░░░░░░░░░░░░░░░░░<br> 
+                                                                                                              
 
-### TIME AVAILABILITY 
-███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░<br> 
-needed it yesterday                                                                                                                    I can wait
+### Time Availibility
+██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░<br> 
+
+
+### Comfort Requirement
+███████████████████████████████████████████████████░░░░░░░░░░<br> 
+
 
 
 ##About
 
-Wafer sesame snaps caramels chupa chups candy. Sweet roll dessert powder powder halvah. Apple pie chocolate cake cotton candy apple pie biscuit tiramisu. Liquorice chocolate bar cupcake sweet roll chocolate halvah chocolate cake. Danish lollipop chocolate croissant. Candy oat cake gummies chocolate cake. Donut tart pudding toffee muffin halvah. Lollipop muffin fruitcake ice cream brownie pastry. Bear claw sugar plum bear claw topping pudding toffee caramels gummi bears marzipan. Pie fruitcake fruitcake. Danish lollipop jelly chupa chups fruitcake biscuit sweet macaroon sweet roll. Cheesecake gummies sugar plum tootsie roll chupa chups sesame snaps. Lemon drops jelly-o tiramisu cupcake cookie soufflé sweet jelly-o chupa chups. Jujubes caramels chocolate.
-
-Gingerbread dragée pudding chupa chups carrot cake. Donut marshmallow pastry biscuit. Sugar plum ice cream bonbon.
-
-
-
+She is an elderly person suffering from Arthritis and requires hearing aids to listen to people. She was a nurse back in the day and has been using public transport all her life.
